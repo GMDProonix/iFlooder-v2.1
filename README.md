@@ -3,7 +3,7 @@ Fully made by: Samuel
 
 If you have any further questions about this project, please email me, and I will reach out to you when I can.
 
-Email: <gdproonix@gmail.com>
+Email: (hidden for privacy)
 
 
 ————————————————————
